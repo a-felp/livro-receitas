@@ -4,7 +4,7 @@
 
 ### Ingredientes
 
-- 3 [peitos de frango cortados em cubos
+- 3 peitos de frango cortados em cubos
 
 - 1 dente de alho picado
 - sal e pimenta a gosto
